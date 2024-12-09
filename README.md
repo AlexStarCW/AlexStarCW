@@ -38,7 +38,7 @@ I'm a technology leader with extensive experience in international business and 
 
 ### 📫 How to reach me
 - LinkedIn: [Alexey Starosotnikov](https://linkedin.com/in/infico)
-- Telegram: @inficofounder
+- Telegram: @alex_staro
 - Email: alexeystarosotnikov@gmail.com
 
 ### 🎯 Current Focus
